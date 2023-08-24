@@ -1,1 +1,0 @@
-# BakuIkan.github.io
